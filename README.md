@@ -5,3 +5,5 @@
 作者主页：[https://github.com/zbezj/HEU_KMS_Activator](https://github.com/zbezj/HEU_KMS_Activator)
 
 下载链接：[https://jackmorning.lanzous.com/iYdwhfqgpna](https://jackmorning.lanzous.com/iYdwhfqgpna)
+
+使用说明：使用前请关闭Windows Defender或其他安全软件
